@@ -1,0 +1,90 @@
+## Workplace Reminder/Rules
+---
+- **Watch your words & actions (in order to gain power)**
+    - Do not overshadow your master - That make them insecure. Make sure they know they are brilliant ! 
+    - Be careful to trust friends | Use your enemies - **keeping your enemy close makes you alert and mindful because conflict pushes progress.**
+    - **Never reveal your real intentions**.
+    - In Conversation, **less is More**.
+    - **Protect your reputation. - One small mistake will ruin your reputation and hard to build it back.**
+    - Stand out to gain their attention - Ex. **Clothing. Style etc**
+    - Make other do the legwork for you. - So that free up your time to do more valuable stuff. 
+---
+- **Acquire power in every social interaction**
+    - Make people approach you first. (Lure them and giving people no choice but to respond themselves.)
+    - Win through actions, not words.
+    - Avoid others’ misery
+    -  **Make people need you** - Make them rely on you and depend on you. Without you they can't win. 
+    - **Reserve your honesty for select people.**
+    - **When asking for help, let them know how they will benefit**
+    - **Be a Spy, act like a Friend.** 
+    - **Destroy you enemies** - Crush threat don't show mercy, or they will return strongly. 
+    - **Know when to go**. - When people have less of you they wish to connect even more. 
+    - Never act predictably - To strike an impression in people's mind. 
+---
+- **Make your intentions and obtain valuable intel** 
+    - **Isolation won't protect you - its make your a bigger target.** 
+    - **Choose your social circle carefully** - People may approach you with different intention. 
+    - Commit to yourself only. - Don't rely or please people too much. 
+    - Look dumber, be smarter. 
+    - **Turning the other cheek is more powerful than defeat**
+        - When your enemy thinks they won, you can act and come out on top. **It is the essence of the surrender tactic.**
+    - **Focus your energy where it matters** - Know your purpose and concentrate your efforts to find success.
+    - **Be an example of -** 
+        - Do not flaunt your wealth.  
+        - Make your work look effortless. 
+        - Pay only a few compliments.  
+        - Be noticeable.  
+        - Adapt your language according to the speaker.  
+        - Bring only good news.  
+        - Have control over your emotions.  
+        - Be self-aware.  
+        - Never joke about appearances.  
+        - Do not criticize your master or ask them for too many favors.
+---
+- **People’s image of you can grant you control over any situation**
+    - **Create an identity that attracts attention** | Marketing yourself.
+    - Maintain a clean appearance
+    - **Use people’s urge for faith to build a following** - Make people 'belief' on something for your advantage. Ex. Be Passionate about your cause. 
+    - **Act confidently** 
+        - When you speak of your achievements, never reveal your tricks and the amount of work it took. Look as if success comes naturally to you, and you can accomplish much more.
+    - **Plan the entire journey** - When your plan is clear and detailed, unexpected turns won’t distract you from reaching your goal. Avoid vagueness as all.
+    - **Act effortlessly**
+    - **Be in charge of options** 
+        - If you need to give someone a choice, present them with options that work in your favor. This way, they will feel in control, but you will have the upper hand.
+    - **Appeal to people’s delusions**
+        - The reality is that society is oppressive, so if you’re not ready for the consequences of telling the harsh truth to someone, tap into their fantasies.  
+        - Confirming people’s delusional beliefs comforts them, thus **making room for deception to seep into the conversation. Portray the fantasy as vague and distant to keep them dreaming.**
+---
+- **Stand firm and win over people’s hearts**
+    - **Recognize people’s weaknesses**
+    - Remember these principles to find anyone’s weak spot:  
+        - Body language is often a giveaway of someone’s emotions.  
+        - Insecurities are usually rooted in childhood.  
+        - Blatant emotions frequently hide the opposite: shyness might be covering a desire for attention. 
+        - Notice uncontrollable emotions, like fear, and take control into your hands.
+    - **Act regal to be treated accordingly** - It means that when you carry yourself like royalty, people around you will regard you as such. If you believe you are worth more, you will receive more. | **Believe in yourself and you will act naturally.** 
+    - **Tame timing** 
+        - Wrong timing is your worst enemy. 
+        - Never appear to be in a hurry. You must be patient, **act when the time is right**, and **use current trends to acquire power**.
+    - **Ignore what you cannot have** - Disregard unattainable things, and **you will be free to work toward your real goals.**
+    - **Visuals count more than words** - **Polish your DOCUMENTATION !**
+    - **Think uniquely; act to blend in** - try to maintain your unique thinking - Reserve your unorthodox ideas for trusted friends and family.!!!
+    - **Infuriate your enemy by your calmness** - Anger shows weakness.
+    - **The only free cheese is in a mousetrap**. - Never accept things for free because there’s always a trick behind them.
+---
+- **Destroy your enemy and reach greatness**
+    - **Do not mirror a great person; become one** - While learning about another person’s experience is worthwhile, never try to copy them. The original is cherished more than its copy.
+    -  **Fight the cause, not the symptoms** - Find out the source and eliminate it. 
+    - **Win over hearts and minds** - Wanting to be seen is in human nature. 
+    - **Defuse your enemy with the Mirror Effect** 
+        - Make your enemy believe you share views. You will gain their trust and disguise your true intentions.
+        - Mirroring your enemy gives you immense power to unsettle them with no suspicion.
+    - **Advocate for change but make subtle improvements** | **CHANGE MANAGEMENT !!!!!!!!!!**
+        - People stick to their habits even when the need for change is blatant. 
+        - Radical reform might create outrage. When in place of power, show respect for the old ways and implement change in **small increments.**
+    - **Be great, not perfect** - You must admit to having imperfections to remain approachable.
+    - **Stop when you reach your goal** - The moment of victory can be intoxicating, thus making you arrogant. No matter how tempted you are, you must learn to stop, or you might lose it all.
+    - **Stay flexible** 
+        - The best way to protect yourself from enemies is to avoid taking a distinct shape.
+        - Adapt to circumstance, and your enemy won’t be able to know your next move or attack you.
+        - Stability is a mirage, so you must rely on adapting to reality quickly.

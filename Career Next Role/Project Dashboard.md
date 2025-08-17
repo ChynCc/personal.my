@@ -1,0 +1,10 @@
+- Canvas Based
+    - Left Column
+        - Executive Summary 
+        - Risk & Mitigation 
+    - Right Column
+        - Program/Sub-Program Sponsors/Managers
+        - Status
+        - Objective / Success Criteria 
+        - Key Milestones / Deployment Roadmap
+        - Call Out - Cross Functional Help Needed 
