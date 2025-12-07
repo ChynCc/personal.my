@@ -20,4 +20,6 @@
         - **Anxious & Sensitive Vs Confident & Calm/Stable**
     - You don't have to build the habits everyone tells you to build. Choose the habits best suits you.
     - Finding and designing situations where you're are at a **natural advantage.** 
+---
+- Change your identity
     
