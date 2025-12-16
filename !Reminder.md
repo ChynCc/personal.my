@@ -34,8 +34,8 @@
 **Self Reminder - Mind**
 - **[[Quote]]**
 **What drain your energy and need to improve on it !**
-- Convince people | Work on it ! #P1
-    - Build Rappo First  
+- Convince people | Work on it !
+    - Build Rapo First  
 - Negotiating
 - Keep you mental healthy 
     - [[Mentally Resilient]]

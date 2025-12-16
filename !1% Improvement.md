@@ -1,4 +1,4 @@
-**1% Improvement** #Weekly 
+**1% Improvement** #Wisdom
 
 - Do NOT overthink, **be present**, let future worry about the future. 
 - Try to break down things as small as possible

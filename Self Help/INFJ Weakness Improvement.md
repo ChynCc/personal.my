@@ -7,11 +7,11 @@
 - Genuine
 - Sensitive
 ---
-## Weakness - #reminder
+## Weakness 
 
 - Do not like too much about the details, like to be "one step to destination".
-- Cannot enjoy the "current moment", focus too much the future. 
-- Rely too much on "Intuition". **Looking at the fact more.** 
+- Cannot enjoy the "current moment", focus too much the future. #Reminder 
+- Rely too much on "Intuition". **Looking at the fact more.** #Reminder 
 - High expectations to break through the barriers but also lead to disappointment if unable to achieve them 
 - **Hold other people with same standard**
 - **Conflict and criticism can be frustrating for Advocates**
@@ -19,12 +19,12 @@
 - Always need a purpose that align to their value
 - Often self-doubt
 ---
-## Possible Improvement #reminder 
+## Possible Improvement 
 
 - Take care of your body.
 ---
 - Be Spontaneous / Go with the Flow.
-- Be more realistic, plan out the details
+- Be more realistic, plan out the details #Reminder 
 - Be more present. 
 - Do not overthink
 ---

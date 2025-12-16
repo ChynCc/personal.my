@@ -4,7 +4,7 @@ tags:
   - solo
 ---
 
-**Book - The Almanac of Naval Ravikant: A Guide to wealth and happiness** #P1 
+**Book - The Almanac of Naval Ravikant: A Guide to wealth and happiness** #Todo
 
 ## Notes
 
@@ -82,7 +82,7 @@ tags:
 
 ## Knowledge
 
-- **Learn to sell. Learn to build. If you can do both, you will be unstoppable.** #solo/wisdom 
+- **Learn to sell. Learn to build. If you can do both, you will be unstoppable.** #Wisdom 
 - Arm yourself with **specific knowledge**, **accountability** and **leverage**.
 - Specific knowledge is **knowledge you cannot be trained for**. If society can train you, it can train someone else and replace you.
 - Specific knowledge is found by pursuing your **genuine curiosity and passion** rather than whatever is hot right now.
@@ -120,7 +120,7 @@ tags:
 
 ## Doing
 
-- **Reading** is faster than **listening**. **Doing is faster than watching**. #solo/wisdom 
+- **Reading** is faster than **listening**. **Doing is faster than watching**. #Wisdom 
 
 ## Time
 
@@ -130,8 +130,8 @@ tags:
 - **Become the best in the world at what you do**. Keep **redefining** what you do until this is true.
 - **There are no get-rich-quick schemes**. Those are just someone else getting rich off you.
 - When you're finally wealthy, you will realize it wan't what you were seeking in the first place. But that is for another.
-- **You don't get rich by spending your time to save money.** #solo/wisdom 
-- **You get rich by saving your time to make money.** #solo/wisdom 
+- **You don't get rich by spending your time to save money.**  **You get rich by saving your time to make money.** #wisdom 
+
 
 ## Productize yourself
 
@@ -140,7 +140,7 @@ tags:
 
 ## Judgement
 
-- **In an age of leverage, one correct decision can win everything.**  #solo/wisdom 
+- **In an age of leverage, one correct decision can win everything.**  #wisdom 
     - The direction you're heading in matters more than how fast you move, especially with leverage. 
 - Without hard work, you'll develop neither judgment nor leverage. 
 
@@ -148,7 +148,7 @@ tags:
 ## Happiness 
 
 - Happiness is a very evolving thing. 
-- **Happiness is the state when nothing is missing - you mind shuts down and stops running into the past of future to regret something or to plan something.**  #quote 
+- **Happiness is the state when nothing is missing - you mind shuts down and stops running into the past of future to regret something or to plan something.**  #Wisdom 
 - Tao Te Ching - If I say I am happy, that means I was sad at some point. Every positive thought even has seed of a negative thought within it or vice versa. 
 - Happiness ... is mainly...
     - Not Suffering

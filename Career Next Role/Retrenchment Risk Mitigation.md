@@ -9,10 +9,10 @@
             - Build Team 
             - Build Product 
 - Continue as ML Staff Engineer
-    - Master Tensorflow Framework #P1
-    - Master PyTorch Framework #P1
-    - Master BQML #P1
--  Networking - build network for next job #P1
+    - JAX  
+    - PyTorch Framework
+    - BQML
+-  Networking - build network for next job 
 ---
 **Potential Role** 
 ```dataview

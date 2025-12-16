@@ -12,7 +12,7 @@
 - HDB Refinance [[quarterly]]
 - FWD Insurance Maturity
 - Aircon
-- HDB Refinance #Quarterly
+- HDB Refinance 
 - FWD Insurance Maturity
 
 ##### Completed

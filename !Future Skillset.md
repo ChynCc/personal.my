@@ -33,6 +33,6 @@
         - Risk Handling
     - The role will evolve from “architect-as-designer” to **“architect-as-orchestrator”**, blending technical expertise with AI-powered efficiency. Architects who master these tools will lead faster, smarter, and more impactful projects.  
 
-- How AI is going to help SA, Use Cases - [[AI Uses Cases & Task for SA]] - #P3 
+- How AI is going to help SA, Use Cases - [[AI Uses Cases & Task for SA]]
     - Drafting Architecture Strategy 
     - Risk Identification 
