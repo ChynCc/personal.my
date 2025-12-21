@@ -4,7 +4,7 @@ tags:
   - solo
 ---
 
-**Book - The Almanac of Naval Ravikant: A Guide to wealth and happiness** #Todo
+**Book - The Almanac of Naval Ravikant: A Guide to wealth and happiness** #ToDo
 
 ## Notes
 

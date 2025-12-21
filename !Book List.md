@@ -8,4 +8,4 @@
 ---
 - [矽谷著名投資人 納瓦爾：如何不靠運氣致富？| 《納瓦爾寶典》 提早退休的方法](https://www.youtube.com/watch?v=9vcb1btGSJ4&t=757s&ab_channel=%E5%90%8D%E8%A8%80%E8%AA%9E%E9%8C%84QUOTES)
 - [2024富人都在建立的13种被动收入管道! 我是如何一个月赚到21000美元的! 从0开始每月1000美元超级简单! 任何人都可以做到! 过去3年经验累积真诚分享!【艾财说081】](https://www.youtube.com/watch?v=wLj_XjNrl58&ab_channel=%E8%89%BE%E8%B4%A2%E8%AF%B4imoneytalk)
-- [我阅读了40本财富畅销书, 原来这就是暴富的秘密](https://youtu.be/MYEOT0At9yk?si=vo6jva4aLkmUTo6-) #Todo
+- [我阅读了40本财富畅销书, 原来这就是暴富的秘密](https://youtu.be/MYEOT0At9yk?si=vo6jva4aLkmUTo6-) #ToDo

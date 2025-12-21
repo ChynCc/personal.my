@@ -1,6 +1,6 @@
 # First Principle 
 
-> First Principle Notes #Todo
+> First Principle Notes #ToDo
 
 **First principles** refer to the fundamental concepts or assumptions that serve as the foundation for a system of beliefs or reasoning. In various contexts, especially in science, philosophy, and problem-solving, first principles involve breaking down complex problems into their most basic, foundational elements, allowing for clearer understanding and innovative solutions.
 
