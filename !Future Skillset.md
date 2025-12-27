@@ -1,7 +1,7 @@
 ## Todo List (20/80 Rules)
 
 - [[Persona Improvement]]
-- [[!AI Study Plan]]
+- [[AI Study Objective]]
 - [[!GCP SA - Study Guide]]
 - [[!ML Study Plan]]
 - [[!SA - Tech]]
